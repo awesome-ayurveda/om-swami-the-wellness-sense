@@ -142,3 +142,26 @@ Kaphas are sound sleepers, and they can sleep for very long periods. They can ea
 
 ### Sex Drive
 
+Vatas have a good sexual appetite and do a lot of cerebral sex. They can perform the full act in their brain. They are aroused very quickly, become passionate just as rapidly, reach the climax even quicker, and feel exhausted afterwards. Vatas like to nap after the act. They remain sexually active until late in their lives. Their reproductive fluids are somewhat thin and flow easily.
+
+Pittas are easily aroused and very passionate. They are more romantic than Vatas but less enduring than Kaphas. Pittas are average performers. They feel hungry after the act. Their body temperature rises quickly, and they sweat more than Vatas and Kaphas during intercourse. Unlike Vatas, who have no time for foreplay, Pittas care about their partners. It is not just sex but an act of love for a Pitta.
+
+Kaphas take their time to be aroused and are the most enduring of the three. Unlike Vatas and Pittas, for them, the quality matters more than the frequency. Their virility (or fertility) is excellent. Just like with their meals, they can skip intercourse without distress, but ultimately, they must have it – they can fast but cannot abstain. Kaphas may feel the urge to eat something sweet after the act.
+
+### Seasonal Allergies
+
+When allergens are running riot during the change of seasons, vatas tend to get dry eyes. Their noses remain mostly blocked during allergy season with very little discharge of mucus. They may experience chest congestion, but they recover soon enough.
+
+If struck with hay fever, pittas get red eyes. While a vata’s nose is blocked, a pitta experiences a runny nose. Pittas can suffer from chest congestion, but their coughs are mostly dry. They may also experience some difficulty in breathing. It is often observed that pittas tend to fall sick twice during the same season.
+
+Kaphas get watery eyes when suffering from hay fever. Their noses are blocked with thick mucus, and they experience the worst chest congestion among the three dosha types. Phlegm formation is the greatest in kaphas during the change of seasons.
+
+### Menstruation
+
+Ayurveda regards menstruation as a cleansing and recharging process. The ancient texts state that the menstrual cycle is a vital indicator of a woman’s health. Ideally, a woman should rest during her period because her body is undergoing a change at this time and is under strain. Every month, nature prepares a woman for conception. It readies the womb for childbearing. During the proliferative phase, kapha, with its lubricating and stabilizing properties, prepares the uterine lining (endometrium) to grow. It nurtures and nourishes it. This is the period between the cessation of flow and ovulation. If there is no union of an egg and a sperm during this period, pitta comes into play. This is the secretory phase, starting from ovulation until the period. Pitta, being the dominant dosha during this phase, causes the basal temperature of a woman’s body to rise. After pitta, vata dominates, and with descending energy, rids the body of menstrual blood.
+
+Vatas experience anxiety, mood swings, sleep disruption, and other symptoms such as pain in the lower back and cramps in the lower abdomen before menstruation. Their periods are somewhat irregular and scanty; their menstrual blood is dark in color and can be clotted. Constipation is common at this time for vatas.
+
+Premenstrual symptoms for pittas include tenderness in the breasts, hot flushes, and irritability; skin rashes and headaches are also common. Their menstrual blood is bright red and warm. Periods for pittas tend to last longer than for vatas. They can experience cramps too, but not as severe as those suffered by vatas. Some pittas experience a burning sensation while urinating at this time.
+
+Kaphas may experience bloating, water retention, and swollen and tender breasts. Their periods are not painful like those of the vatas and pittas. They may still have heavy periods, though, and the blood often contains a white discharge. Kaphas experience lethargy and torpor during their periods; their metabolic processes slow down, and they feel a general heaviness.
