@@ -10,14 +10,23 @@
 
 1. [Introduction](01-Introduction.md)
 2. [Mother Nature And Your Body](02-Mother-Nature-and-Your-Body.md)
-- The Five Great Elements
-- The Seven Tissues
+- [The Five Great Elements](02-Mother-Nature-and-Your-Body.md#the-five-great-elements)
+  - The Five Elements and Our Body
+- [The Seven Tissues](02-Mother-Nature-and-Your-Body.md#the-five-elements-and-our-body)
+  - Rasa
+  - Blood
+  - Muscle
+  - Fat
+  - Bones
+  - Marrow
+  - Shukra
 3. [The Three Physical Humours](03-The-Three-Physical-Humours.md)
-- Vata
-- Pitta
-- Kapha
+    - The Three Doshas and Their Properties
+- [Vata](03-The-Three-Physical-Humours.md#vata)
+- [Pitta](03-The-Three-Physical-Humours.md#pitta)
+- [Kapha](03-The-Three-Physical-Humours.md#kapha)
 4. [Your Physical Constitution](04-Your-Physical-Constitution.md)
-- What Determines Your Constitution
+- [What Determines Your Constitution](04-Your-Physical-Constitution.md#what-determines-your-constitution)
 - Evaluating Your Dosha
 - Physical Attributes
 - Mental Attributes
