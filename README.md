@@ -22,7 +22,7 @@
 - Physical Attributes
 - Mental Attributes
 - Dual Constitution
-5. Your Mental Constitution
+5. [Your Mental Constitution](05-Your-Mental-Constitution.md)
 - Ignorance
 - Passion
 - Purity
