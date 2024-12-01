@@ -27,7 +27,7 @@
 - Passion
 - Purity
 - The Four Types Of Digestive Fires
-6. We Are What We Eat
+6. [We Are What We Eat](06-We-Are-What-We-Eat.md)
 - The Three Types Of Food
 - Oxidative Damage And Tamasic Foods
 7. Medicine Cures, Food Heals
